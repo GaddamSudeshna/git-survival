@@ -1,1 +1,1 @@
-"We're both the best, ugh"
+"We're both the best, ugh "
